@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @KTDeboa
+- 👀 I'M intrested into coding and more
