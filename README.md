@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @KTDeboa
-- 👀 I'M intrested into coding and more
+- I make fake exploits/hacks so you can know what to look out for always remember to not use hacks as it agianst to use because of tos reasons
